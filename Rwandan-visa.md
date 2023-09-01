@@ -6,7 +6,7 @@ proceed to [Irembo website](https://irembo.gov.rw/home/citizen/all_services) for
 - french and
 - kinyarwanda.
 
-for student visa, head over to Permits and a pop up window will appear as shown below:
+for student visa, head over to Permits and a pop up window will appear as shown in the visa application photos in the photos folder.
 
 the processing of this is about 7 days. remember to have;
 
@@ -14,4 +14,6 @@ the processing of this is about 7 days. remember to have;
 - letter from your employer(if work visa) or from instution(for student visa) and,
 - copy of the first page of your passport containing your biodata.
 
-lastly, you need to have about 30 000 rwf(about $25) for the processing. for East African Community passport holders, the student visa is free.! 
+lastly, you need to have about 30 000 rwf(about $25) for the processing in your mobile number of choice(Airtel, MTN) or in payment cards you might be having.
+
+for East African Community passport holders, the student visa is free.! 
