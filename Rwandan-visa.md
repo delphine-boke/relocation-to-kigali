@@ -2,9 +2,9 @@ now that you're here, depending on your stay, you would require a Rwandan Visa.
 
 proceed to [Irembo website](https://irembo.gov.rw/home/citizen/all_services) for this. change the language to what you understand at the drop down menu. languages available are:
 
-- english,
-- french and
-- kinyarwanda.
+- English,
+- French and
+- Kinyarwanda.
 
 for student visa, head over to Permits and a pop up window will appear as shown in the visa application photos in the photos folder.
 

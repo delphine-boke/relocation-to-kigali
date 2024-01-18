@@ -1,6 +1,6 @@
 ensure you purchase electricity tokens the first three days of the month, that way you get a better deal.
 
-electricity tokens, here known as cash power, are paid soley via mobile money.
+electricity tokens, here known as cash power, are paid solely via mobile money.
 
 according to [Airtel](https://www.airtel.co.rw/airtelmoney/faq), you follow these steps from your line to purchase cash power:
 
